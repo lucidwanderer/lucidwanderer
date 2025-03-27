@@ -1,16 +1,35 @@
-## Hi there 👋
+<p align="center"> 
+  <img width="550" height="500" src="https://i.pinimg.com/736x/0c/a5/3f/0ca53f7cc03f97eef6a61a9e5db50546.jpg">
+</p>
 
-<!--
-**lucidwanderer/lucidwanderer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> 
+ ︶  ➣ ₊ *froggo , astro* </p>
 
-Here are some ideas to get you started:
+<p align="center">
+⟢﹒ᶻz﹒16 y/o﹒➜ </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+❀﹒﹒⇅﹒𝟙. she/her﹒∿ </p>
+
+<p align="center">
+﹒＞＜﹒⇆﹒𝟚.he/him</p>
+
+<p align="center">
+═════✬✩══╡˚✧✬✧˚╞══✩✬═════ </p>
+
+<p align="center">
+extra !! (˶ˆᗜˆ˵ ) </p>
+
+<p align="center">
+✧ · 💠 **don't follow if**: basic criteria, against irls, fictkins, etc, rude or toxic people, attention seekers, disorder fakers, bots </p>
+
+<p align="center">
+﹐✶ꜜ﹒🌀 interests: brawl stars, reverse: 1999, cookie run, hollow knight, dandy's world, block tales, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus </p>
+
+<p align="center">
+ᶻᶻ ✶ 🧊 ew: bugs, gore, nsfw, drama </p>
+
+
+<p align="center"> 
+  <img width="550" height="300" src="https://i.pinimg.com/736x/11/5f/ab/115fabbd3f07319b8a227f768529305f.jpg">
+</p>
