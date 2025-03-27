@@ -3,16 +3,16 @@
 </p>
 
 <p align="center"> 
- ︶  ➣ ₊ *froggo , astro* </p>
+ ︶ 💙➣ ₊ *froggo , astro* </p>
 
 <p align="center">
-⟢﹒ᶻz﹒16 y/o﹒➜ </p>
+⟢﹒💤﹒16 y/o﹒➜ </p>
 
 <p align="center">
-❀﹒﹒⇅﹒𝟙. she/her﹒∿ </p>
+❀﹒🪡 ⇅﹒𝟙. she/her﹒∿ </p>
 
 <p align="center">
-﹒＞＜﹒⇆﹒𝟚.he/him</p>
+﹒＞＜﹒🩹 ⇆﹒𝟚.he/him</p>
 
 <p align="center">
 ═════✬✩══╡˚✧✬✧˚╞══✩✬═════ </p>
