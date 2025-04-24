@@ -3,7 +3,7 @@
 </p>
 
 <p align="center"> 
- ︶ 💙➣ ₊ *froggo , astro* </p>
+ ︶ 💙➣ ₊ froggo , astro c'link </p>
 
 <p align="center">
 ⟢﹒💤﹒16 y/o﹒➜ </p>
@@ -21,7 +21,7 @@
 extra !! (˶ˆᗜˆ˵ ) </p>
 
 <p align="center">
-✧ · 💠 **don't follow if**: basic criteria, against irls, fictkins, etc, rude or toxic people, attention seekers, disorder fakers, bots </p>
+✧ · 💠 **don't follow if**: basic criteria, against irls, fictkins, etc, r3al1ty ch3ck3rs, rude or toxic people, attention seekers, disorder fakers, bots </p>
 
 <p align="center">
 ﹐✶ꜜ﹒🌀 interests: brawl stars, reverse: 1999, cookie run, hollow knight, dandy's world, block tales, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus </p>
