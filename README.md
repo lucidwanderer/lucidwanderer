@@ -3,7 +3,7 @@
 </p>
 
 <p align="center"> 
- ︶ 💙➣ ₊ froggo , astro c'link ~ t.masc + genderfluid </p>
+ ︶ 💙➣ ₊ froggo , astro c'link ~ genderfluid </p>
 
 <p align="center">
 ⟢﹒💤﹒16 y/o﹒➜ </p>
