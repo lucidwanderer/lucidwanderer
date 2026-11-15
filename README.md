@@ -24,7 +24,13 @@ extra !! (˶ˆᗜˆ˵ ) </p>
 ✧ · 💠 don't follow if/dni: homophobic, transphobic, racist, sexist, predators/groomers, etc., endo/willogenic systems, people who ask for proof of trauma ???, forcing religion on people, overly weird/rude to friends, you get the idea. spam followers are ok! </p>
 
 <p align="center">
-﹐✶ꜜ﹒🌀 interests(not in order): MCU, reverse: 1999, cookie run, hollow knight, dandy's world, studio investigrave, pokemon, murder drones, minecraft & minecraft args, deltarune and undertale, kirby, legend of zelda, vocaloid & project:sekai, crochet, photography, psychology </p>
+﹐✶ꜜ﹒🌀 interests(not in order): MCU, reverse: 1999, cookie run, hollow knight, dandy's world, studio investigrave, pokemon, murder drones, minecraft & minecraft args, deltarune and undertale, kirby, legend of zelda, vocaloid & project:sekai, crochet, photography, psychology, making dumbass theories that can probably be easily disproved </p>
+
+<p align="center">
+bonus: rank of who i think is the roaring knight in order :3 </p>
+
+<p align="center">
+most -> new character, amalgamate, dess and/or asriel, an object, rudy, papyrus, carol <- least (lowkey just jokes atp
 
 <p align="center">
 ty for reading !! </p>
