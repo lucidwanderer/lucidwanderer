@@ -31,11 +31,10 @@ ty for reading !! </p>
 
 
 <p align="center">
-  <img src=https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj alt=lacey width="650">
+  <img src=https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj alt=lacey width="700">
 </p>
-<img width="431" height="448" alt="image" src="https://github.com/user-attachments/assets/2fd47e12-48b4-4054-b404-530b32697d91" />
 
 
 <p align="center">
-  <img src=https://i.pinimg.com/736x/3f/a2/d9/3fa2d90c82cb7fce83cbbbde9b56cd93.jpg alt=zegect width="300">
+  <img src=https://github.com/user-attachments/assets/2fd47e12-48b4-4054-b404-530b32697d91 alt=zegect width="250">
 </p>
