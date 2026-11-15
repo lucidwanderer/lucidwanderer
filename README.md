@@ -31,7 +31,7 @@ ty for reading !! </p>
 
 
 <p align="center">
-  <img src=https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj alt=lacey width="700" height="300" >
+  <img src=https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj alt=lacey width="700" height="200" >
 </p>
 
 
