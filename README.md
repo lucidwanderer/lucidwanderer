@@ -27,6 +27,9 @@ extra !! (˶ˆᗜˆ˵ ) </p>
 ﹐✶ꜜ﹒🌀 interests(not in order): MCU, reverse: 1999, cookie run, hollow knight, dandy's world, studio investigrave, pokemon, murder drones, minecraft & minecraft args, deltarune and undertale, kirby, legend of zelda, vocaloid & project:sekai, crochet, photography, psychology, making dumbass theories that can probably be easily disproved </p>
 
 <p align="center">
+ships: krusie, krusielle, suselle, spamtenna (ask me about others! idk enough about other media to know really :/ )
+
+<p align="center">
 bonus: rank of who i think is the roaring knight in order :3 </p>
 
 <p align="center">
