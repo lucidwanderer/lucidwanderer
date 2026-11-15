@@ -22,4 +22,8 @@ extra !! (˶ˆᗜˆ˵ ) </p>
 <p align="center">
 ﹐✶ꜜ﹒🌀 interests(not in order): reverse: 1999, cookie run, hollow knight, dandy's world, studio investigrave, pokemon, twenty one pilots, murder drones, the amazing digital circus, minecraft & minecraft args </p>
 
-ty for reading !!
+<p align="center">
+ty for reading !! </p>
+
+<p align="center">
+https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj<img src=["images/your-image-name.png"](https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj) alt=lacey width="500" /> </p>
