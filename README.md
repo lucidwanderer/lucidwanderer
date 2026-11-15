@@ -1,5 +1,9 @@
 ![ze](https://i.pinimg.com/736x/7c/a1/4f/7ca14ff7ad34125b1943fe117e9a0dd9.jpg)
 
+<p align="center">
+  <img src=https://i.pinimg.com/736x/7c/a1/4f/7ca14ff7ad34125b1943fe117e9a0dd9.jpg alt=ze width="400">
+</p>
+
 <p align="center"> 
  ︶ 💙➣ ₊ avery , ze kin ~ trans afab ~ bmf! </p>
 
