@@ -22,6 +22,8 @@ extra !! (˶ˆᗜˆ˵ ) </p>
 
 <p align="center">
 ✧ · 💠 don't follow if/dni: homophobic, transphobic, racist, sexist, predators/groomers, etc., endo/willogenic systems, people who ask for proof of trauma ???, forcing religion on people, overly weird/rude to friends, you get the idea. spam followers are ok! </p>
+<p align="center">
+self osdd/did diagnoses VERY thin ice/situation dependant. i wont ask and be a weirdo about it but it should be a last resort if you're unable to reach professional advice imo. there's wayyy too much stigma for these **disorders** online </p>
 
 <p align="center">
 ﹐✶ꜜ﹒🌀 interests(not in order): MCU, reverse: 1999, cookie run, hollow knight, dandy's world, studio investigrave, pokemon, murder drones, minecraft & minecraft args, deltarune and undertale, kirby, legend of zelda, vocaloid & project:sekai, crochet, photography, psychology, making dumbass theories that can probably be easily disproved </p>
