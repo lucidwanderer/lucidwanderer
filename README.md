@@ -1,7 +1,5 @@
-![ze](https://i.pinimg.com/736x/7c/a1/4f/7ca14ff7ad34125b1943fe117e9a0dd9.jpg)
-
 <p align="center">
-  <img src=https://i.pinimg.com/736x/7c/a1/4f/7ca14ff7ad34125b1943fe117e9a0dd9.jpg alt=ze width="400">
+  <img src=https://i.pinimg.com/736x/7c/a1/4f/7ca14ff7ad34125b1943fe117e9a0dd9.jpg alt=ze width="450">
 </p>
 
 <p align="center"> 
@@ -31,6 +29,12 @@ extra !! (˶ˆᗜˆ˵ ) </p>
 <p align="center">
 ty for reading !! </p>
 
-![lacey](https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj)
 
-![zegect](https://i.pinimg.com/736x/3f/a2/d9/3fa2d90c82cb7fce83cbbbde9b56cd93.jpg)
+<p align="center">
+  <img src=https://64.media.tumblr.com/a4d40e73b33b01a50ab90bc6773e910b/235caa096d1841ed-b3/s1280x1920/d4c3db513f6e60c165ef4eb4e886c8fb6e77326d.pnj alt=lacey width="500">
+</p>
+
+
+<p align="center">
+  <img src=https://i.pinimg.com/736x/3f/a2/d9/3fa2d90c82cb7fce83cbbbde9b56cd93.jpg alt=zegect width="300">
+</p>
